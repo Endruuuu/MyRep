@@ -1,2 +1,2 @@
 # MyRep
-It's introduse my self
+Just for fun
